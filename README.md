@@ -13,7 +13,7 @@
 When I’m not coding, you can find me exploring new tech blogs, experimenting with new projects, or dreaming up new ideas for apps that make life simpler.
 
 📫 **How to reach me**:  
-**vaishnavivaraganti25@gmail.com**  
+**vaishnavivaraganti2508@gmail.com**  
 
 ---
 
